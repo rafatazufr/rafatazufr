@@ -12,4 +12,4 @@ My name is Rafata Zufr Hafizh Kriswantoro, you can call me Rafata. I'm 20 years 
 
 - 📫 How to reach me: just chat me on Whatsapp at +6281328551301
 
-- ⚡ Fun fact: handsome, disayang mama, baik hati, tidak sombong
+- ⚡ Fun fact: handsome, disayang mama, baik hati, tidak sombong, agama dapet A
